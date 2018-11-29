@@ -9,7 +9,7 @@
 
 
 
-![avatar](/此电脑/本地磁盘（D：）/QQ图片20181129173030_看图王123）
+![easonjim](raw.githubusercontent.com)
 
 
 
