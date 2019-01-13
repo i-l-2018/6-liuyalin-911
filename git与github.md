@@ -9,7 +9,6 @@
 
 
 
-![easonjim](https://github.com/liuyalin2018/liu/blob/master/新建%20DOC%20文档.doc)
 
 
 
